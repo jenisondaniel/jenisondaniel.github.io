@@ -1,1 +1,0 @@
-# jenisondaniel.github.io
